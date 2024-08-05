@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I´m dancer
 -->
-![](00001098655394sp@al.educacao.sp.gov.br)
+![](https://th.bing.com/th/id/OIP.T2lGe5ky3fF_RbLuwrV8NQHaFL?rs=1&pid=ImgDetMain)
+
